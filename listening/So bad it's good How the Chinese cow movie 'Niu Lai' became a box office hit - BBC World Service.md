@@ -34,7 +34,7 @@ William: It only makes sense.
 
 Iqra: And so this film came out on August 5th and in its first 10 days, it only made around $1,500 in the box office. But then it blew up over a single weekend and has now made more than $1.7 million. So what happened there?
 
-Zhang: So in the first 10 days of releasing, there's like you said, literally nobody picked up on the film. Like, why would I spend money on this? I didn't even know what it's about. And even looking at the posters, there's not professional design and there's no publicity at all. So like, I don't even know who are the first 10 people walked into the theater, especially comparing with other movies at the same time and the Spider-Man, of course. And then later on, there's the Odyssey, also in Chinese theaters.
+Zhang: So in the first 10 days of releasing, there's like you said, literally nobody picked up on the film. Like, why would I spend money on this? I didn't even know what it's about. And even looking at the posters, there's not professional design and there's no publicity at all. So like, I don't even know who are the first 10 people walked into the theater, especially comparing with other movies at the same time and the Spider-Man, of course. And then later on, there's the Odyssey, also in Chinese theaters. So I don't even know who are the people who walked into those theaters, but they did. And after they came out, they shared their views online. It was like, it's so bad. Why is it here? And all of a sudden, people start discussing and then voila, people start watching and thousands of money that it is now.
 
-
+William: And I think any provocation sort of brings something attention.
 
